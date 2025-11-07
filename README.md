@@ -12,4 +12,4 @@
 - There are 11 Main Characters, Linling, Nice, E-Soul, Ahu, Lucky Cyan, Loli, The Johnnies, GhostBlade, Dragon Boy, Queen, and finally X.
 - Each Character has its own origin in the series, and each individual is interesting and each story connects to the other.
 - The World of to be hero x are also interesting as it is different to most anime series i have watched, it uses the belief of others to make powers become reality.
-- ---Snap
+---Snap
